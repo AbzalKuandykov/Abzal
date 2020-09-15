@@ -1,0 +1,1 @@
+Abzal Kuandykov(190107037)
